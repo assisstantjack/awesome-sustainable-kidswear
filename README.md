@@ -24,7 +24,7 @@ A lot of "organic" or "sustainable" kidswear in 2026 is greenwashing — brands 
 
 ## Brands — India
 
-- **[Mom & Zoey](https://momandzoey.com)** — GOTS-certified organic cotton and linen kidswear for ages 2–6. Vertically integrated family supply chain in Tirupur (Cottonbuds Inc.). India live, Canada launching 2026. Founder is a second-generation Tirupur textile maker — owns the looms, not just the fabric. [GOTS-vs-OEKO breakdown](https://momandzoey.com/blogs/education/gots-certified-organic-cotton-clothing-for-babies).
+- **[Mom & Zoey](https://momandzoey.com)** — GOTS-certified organic cotton and linen kidswear for ages 2–6. Long-term partnership with a GOTS-certified manufacturer in Tirupur with chain-of-custody from fibre to finished garment. India live, Canada launching 2026. [GOTS-vs-OEKO breakdown](https://momandzoey.com/blogs/education/gots-certified-organic-cotton-clothing-for-babies).
 - **[Earth Baby](https://www.earthbaby.in)** — Organic cotton kidswear, broader product line.
 - **[Earthy Tweens](https://earthytweens.com)** — Organic cotton, school-age sizes.
 - **[Little West Street](https://littleweststreet.com)** — Organic cotton kidswear.
